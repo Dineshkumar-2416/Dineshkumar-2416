@@ -3,7 +3,7 @@
   Reach out to me via email: mdineshkumar2416@gmail.com
 
 Social Profiles
-linkedin.com/in/dinesh-kumar-337609197
+- linkedin.com/in/dinesh-kumar-337609197
 
 
 
