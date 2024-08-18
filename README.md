@@ -8,7 +8,7 @@ At IIT Madras, our team successfully transitioned a VR training simulator to a m
 
 
 Social Profiles
-- linkedin.com/in/dinesh-kumar-337609197 
+- linkedin.com/in/dineshkumarm2416 
 
 
 <!---
